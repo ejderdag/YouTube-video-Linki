@@ -1,1 +1,2 @@
-Video Linki
+Yazilim Muhendisligi Oryantasyonu Proje Odevi
+
